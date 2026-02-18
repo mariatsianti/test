@@ -1,1 +1,1 @@
-[άσκηση κβάντο](Screenshot 2026-01-03 155753.png)
+[kvanto](Screenshot 2026-01-03 155753.png)
